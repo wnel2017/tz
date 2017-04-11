@@ -9,15 +9,14 @@
   <tr>
       <td align=center>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel">◆铁证如山◆头号史案</a> <br/>
- <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel">◆铁证如山◆震撼全球</a> <br/>
- <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel">请您点击观看</a> <br/>
+ <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816787&from=wnel">◆追查国际 “中共活摘器官 国家犯罪罪证”专家讲座</a> <br/>
    </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%A4%A7%E5%8D%AB%E6%88%98%E7%BA%A2%E9%AD%941.jpg" /></td>
    </tr>
   <tr>
   <td align=left>
-◆获多项国际大奖，全球反响巨大<br/>
+◆《铁证如山》视频发布后，全球社会各界反响激烈。<br/>
 ◆制作<br/>
 ——由加拿大温哥华华裔电影人李云翔执导，2015年4月23日获第74届（2014年度）美国广播电视文化成就奖（皮博迪奖），李云翔建议人们，观看纪录片的证据与证人证词，并作出自己的判断。<br/>
 ◆影片简介◆<br/>
