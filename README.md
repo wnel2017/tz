@@ -28,8 +28,16 @@
 ——从2006年3月9日两个证人曝光了中共活摘法轮功学员器官罪恶的第一时间，追查国际就开始了面向中国大陆的系统调查。包括对5名中共政治局常委、1名军委副主席、政治局委员、国防部长、前军方总后勤部卫生部长等，对中国865家器官移植医院和9500多名移植执业医生的调查取证，获得重大突破。采集到两千多个电话录音证据，获取了上万条资料证据。发表了20多万字的综合调查报告，呈现了60个电话调查录音证据，1628个资料证据。<br/>
 ◆欢迎下载、分享更多人，制止迫害。<br/>
 ◆更多同系列精彩影片<br/>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816779&from=wnel">◆活摘十年调查◆揭开中共活摘震撼内幕</a> <br/>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">◆大卫战红魔◆国际获奖，全球反响巨大</a> <br/>
+   </tr>
+  <tr>
+<td align=center>
+◆活摘十年调查◆揭开中共活摘震撼内幕<br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816779&from=wnel">请点击在线观看</a> <br/>
+   </tr>
+  <tr>
+<td align=center>
+◆大卫战红魔◆国际获奖，全球反响巨大<br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">请点击在线观看</a> <br/>
   </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E6%B4%BB%E6%91%983.jpg" /></td>
