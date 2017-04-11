@@ -29,7 +29,7 @@
 ◆欢迎下载、分享更多人，制止迫害。<br/>
 ◆更多同系列精彩影片<br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816779&from=wnel">◆活摘十年调查◆揭开中共活摘震撼内幕</a> <br/>
-<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">◆大卫战红魔◆国际获奖，反响巨大</a> <br/>
+<a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">◆大卫战红魔◆国际获奖，全球反响巨大</a> <br/>
   </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E6%B4%BB%E6%91%983.jpg" /></td>
