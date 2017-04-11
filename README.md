@@ -9,7 +9,7 @@
   <tr>
       <td align=center>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel">◆铁证如山◆头号史案</a> <br/>
-  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel">◆铁证如山◆震撼全球</a> <br/>
+ <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel">◆铁证如山◆震撼全球</a> <br/>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel">请您点击观看</a> <br/>
    </tr>
   <tr>
