@@ -11,6 +11,7 @@
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel">◆◆铁证如山◆◆头号史案：超越纳粹</a> <br/>
    </tr>
   <tr>
+      <td align=center>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816787&from=wnel"> ◆中共活摘器官 国家犯罪罪证◆专家讲座</a> <br/>
    </tr>
   <tr>
