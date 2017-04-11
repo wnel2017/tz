@@ -8,7 +8,8 @@
   </tr>
   <tr>
       <td align=center>
- <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel">◆◆铁证如山◆◆头号史案：超越纳粹</a> <br/>
+      ◆◆铁证如山◆◆头号史案：超越纳粹<br/>
+ <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel"></a> 请点击观看<br/>
    </tr>
   <tr>
       <td align=center>
