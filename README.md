@@ -41,6 +41,13 @@
 <td align=center>
 ◆大卫战红魔◆国际获奖，全球反响巨大<br/>
 <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816771&from=wnel">请点击在线观看</a> <br/>
+   </tr>
+  <tr>
+    <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E5%B9%B4.JPG" /></td>
+   </tr>
+  <tr>
+        <td align=center>
+  ◆这种反人类罪恶至今还在中国继续◆<br/>
   </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E6%B4%BB%E6%91%983.jpg" /></td>
