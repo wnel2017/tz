@@ -70,14 +70,7 @@
        </td>
   </tr>
   <tr>
-   <td align=center>网门网址 https://git.io/ogate 收藏浏览器<br/>
-      推荐谷歌或火狐浏览器<br/>
-      国产浏览器会干扰访问<br/>
-    </td>
-  </tr>
-  <tr>
-    <td align=center>
-      <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?from=wnel">大陆请点击进入动态网址</a><br/>
+   <td align=center>网门网址 https://git.io/ogate 请收藏浏览器<br/>
       推荐谷歌或火狐浏览器<br/>
       国产浏览器会干扰访问<br/>
     </td>
