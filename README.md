@@ -8,19 +8,13 @@
   <tr> 
    <td align=center>
 ❤❤❤唤醒良知，震撼心灵！❤❤❤<br/>
-          </tr>
-  <tr>
-      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg"/></td>
-  </tr>
-  <tr>
-      <td align=center>
 ◆◆铁证如山◆◆头号史案：超越纳粹<br/>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?2EC%2FZCGJ&current=2:1&from=wnel"> 请点击在线观看</a><br/>
-  </tr>
-  <tr>
-      <td align=center>
 ◆专家讲座◆中共活摘器官 国家犯罪罪证<br/>
  <a href="https://s3.ap-south-1.amazonaws.com/ogatem/oGate.htm?c816787&from=wnel">请点击在线观看</a> <br/>
+  </tr>
+  <tr>
+      <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/%E5%BE%AE%E4%BF%A1%E8%AF%B4%E6%98%8E4.jpg"/></td>
    </tr>
   <tr>
     <td align=center><img src="https://raw.githubusercontent.com/wnel2017/ku/master/10%E5%B9%B42.jpg" /></td>
